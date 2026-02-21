@@ -4,4 +4,4 @@
 
 🔬Website: [wenruixu.com](https://wenruixu.com/)
 
-📫Email: wenruixu@outlook.com
+📫Email: wenruixu(at)outlook(dot)com
